@@ -1,1 +1,1 @@
-Kobe Bryant, also known as the "Black Mamba," scored 81 points in a single game against the Toronto Raptors on January 22, 2006, the second-highest point total in NBA history.
+Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).
