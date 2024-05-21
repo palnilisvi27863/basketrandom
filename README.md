@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).
+Martina Navratilova holds the record for the most singles titles won in the Open Era, with 167 titles to her name.
