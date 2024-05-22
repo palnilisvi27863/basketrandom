@@ -1,1 +1,1 @@
-Martina Navratilova holds the record for the most singles titles won in the Open Era, with 167 titles to her name.
+The United States men's basketball team has won the most Olympic gold medals in basketball, with a total of 15 gold medals as of the 2020 Tokyo Olympics.
