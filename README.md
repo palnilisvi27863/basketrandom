@@ -1,1 +1,1 @@
-The United States men's basketball team has won the most Olympic gold medals in basketball, with a total of 15 gold medals as of the 2020 Tokyo Olympics.
+The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.
