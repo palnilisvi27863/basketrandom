@@ -1,1 +1,1 @@
-The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.
+Kobe Bryant, also known as the "Black Mamba," scored 81 points in a single game against the Toronto Raptors on January 22, 2006, the second-highest point total in NBA history.
