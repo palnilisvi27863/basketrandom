@@ -1,1 +1,1 @@
-Tennis has four major tournaments known as the Grand Slam events: the Australian Open, French Open (Roland Garros), Wimbledon, and US Open.
+Rod Laver is the only player to have won the Grand Slam (all four major titles) twice, in 1962 and 1969.
