@@ -1,1 +1,1 @@
-Serena Williams holds the record for the most Grand Slam singles titles in the Open Era, with 23 titles won between 1999 and 2017.
+The Boston Celtics hold the record for the most NBA championships, with 17 titles won as of 2022, followed by the Los Angeles Lakers with 17 championships.
