@@ -1,1 +1,1 @@
-Basketball is one of the most popular and widely played sports in the world, with an estimated 450 million people playing basketball globally.
+Tennis has four major tournaments known as the Grand Slam events: the Australian Open, French Open (Roland Garros), Wimbledon, and US Open.
