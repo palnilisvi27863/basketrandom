@@ -1,1 +1,1 @@
-The NBA (National Basketball Association) was founded on June 6, 1946, as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
+The United States men's basketball team has won the most Olympic gold medals in basketball, with a total of 15 gold medals as of the 2020 Tokyo Olympics.
