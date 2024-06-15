@@ -1,1 +1,1 @@
-The modern game of tennis evolved from "lawn tennis," which was first played in England in the late 19th century.
+The NBA All-Star Weekend, featuring events like the Slam Dunk Contest, Three-Point Contest, and All-Star Game, has become a highly anticipated annual event that attracts fans and celebrities from around the world.
