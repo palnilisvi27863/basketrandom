@@ -1,1 +1,1 @@
-The National Basketball Association (NBA) was founded in 1946 as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as a way to keep his students active indoors during the winter months.
