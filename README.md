@@ -1,1 +1,1 @@
-The NBA All-Star Weekend, featuring events like the Slam Dunk Contest, Three-Point Contest, and All-Star Game, has become a highly anticipated annual event that attracts fans and celebrities from around the world.
+The National Basketball Association (NBA) was founded in 1946 as the Basketball Association of America (BAA) and merged with the National Basketball League (NBL) in 1949 to form the NBA.
