@@ -1,1 +1,1 @@
-Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as a way to keep his students active indoors during the winter months.
+Steffi Graf is the only player to have won all four Grand Slam singles titles and an Olympic gold medal in the same calendar year, achieving the "Golden Slam" in 1988.
