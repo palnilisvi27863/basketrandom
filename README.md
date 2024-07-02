@@ -1,1 +1,1 @@
-The NBA consists of 30 teams divided into two conferences, the Eastern Conference and the Western Conference, each containing three divisions.
+Induction into the Basketball Hall of Fame is one of the highest honors in basketball, recognizing individuals for their outstanding achievements and contributions to the game.
