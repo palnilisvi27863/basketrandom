@@ -1,1 +1,1 @@
-Induction into the Basketball Hall of Fame is one of the highest honors in basketball, recognizing individuals for their outstanding achievements and contributions to the game.
+Hakeem Olajuwon is the NBA's all-time leader in blocked shots, with 3,830 blocks recorded throughout his career with the Houston Rockets and Toronto Raptors.
