@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the NBA's all-time leader in blocked shots, with 3,830 blocks recorded throughout his career with the Houston Rockets and Toronto Raptors.
+Martina Navratilova holds the record for the most singles titles won in the Open Era, with 167 titles to her name.
