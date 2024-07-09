@@ -1,1 +1,1 @@
-Martina Navratilova holds the record for the most singles titles won in the Open Era, with 167 titles to her name.
+Rod Laver is the only player to have won the Grand Slam (all four major titles) twice, in 1962 and 1969.
