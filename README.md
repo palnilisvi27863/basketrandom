@@ -1,1 +1,1 @@
-Hakeem Olajuwon is the only player in NBA history to win the NBA MVP, Defensive Player of the Year, and NBA Finals MVP awards in the same season (1993-1994).
+Hakeem Olajuwon is the NBA's all-time leader in blocked shots, with 3,830 blocks recorded throughout his career with the Houston Rockets and Toronto Raptors.
