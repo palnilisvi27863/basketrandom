@@ -1,1 +1,1 @@
-Roger Federer holds the record for the most Grand Slam singles titles by a male player, with 20 titles won between 2003 and 2018.
+The United States men's basketball team has won the most Olympic gold medals in basketball, with a total of 15 gold medals as of the 2020 Tokyo Olympics.
