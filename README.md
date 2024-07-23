@@ -1,1 +1,1 @@
-Players can move the ball by dribbling (bouncing) it while walking or running, passing it to teammates, or shooting it toward the hoop to score field goals worth two or three points.
+Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as a way to keep his students active indoors during the winter months.
