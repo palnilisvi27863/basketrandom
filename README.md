@@ -1,1 +1,1 @@
-Basketball was invented in December 1891 by Dr. James Naismith, a Canadian physical education instructor, as an indoor game to keep his students active during the winter months.
+The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
