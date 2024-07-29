@@ -1,1 +1,1 @@
-The first public basketball game was played in Springfield, Massachusetts, where Naismith taught, and the sport quickly gained popularity across the United States and around the world.
+Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).
