@@ -1,1 +1,1 @@
-Tennis has its origins in 12th century France, where it was played by striking a ball with the palm of the hand in a game called "jeu de paume" (game of the palm).
+The objective of the game is to score points by shooting the basketball through the opposing team's hoop, which is mounted 10 feet above the floor.
