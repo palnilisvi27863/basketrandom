@@ -1,1 +1,1 @@
-The objective of the game is to score points by shooting the basketball through the opposing team's hoop, which is mounted 10 feet above the floor.
+The first Wimbledon Championships, the oldest tennis tournament in the world, was held in 1877 at the All England Lawn Tennis and Croquet Club in Wimbledon, London.
