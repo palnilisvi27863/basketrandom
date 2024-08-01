@@ -1,1 +1,1 @@
-The first Wimbledon Championships, the oldest tennis tournament in the world, was held in 1877 at the All England Lawn Tennis and Croquet Club in Wimbledon, London.
+The original rules of basketball, written by Naismith, included 13 basic rules, which have since evolved and expanded into the comprehensive rulebook used today.
